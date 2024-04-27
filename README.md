@@ -1,6 +1,5 @@
 # About Me
 Saya siapa?!?!?!?!
-https://drive.google.com/drive/folders/1IzDSzHlATsTJbX71oDxnTqQIdaPPx5kz?usp=drive_link
 
 
 
